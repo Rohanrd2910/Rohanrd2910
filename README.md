@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @aayushi2910
+- 👋 Hi, I’m @rohanrd2910
 - 👀 I’m interested in ...Travelling
 - 🌱 I’m currently learning ...MBBS
 - 💞️ I’m looking to collaborate on ...
